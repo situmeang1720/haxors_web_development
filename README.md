@@ -1,2 +1,2 @@
 # haxsors_web_development
-Repositori utama Nama:Haxors-Nim:0702191113
+Repositori utama Nama:Rizky Akbar Situmeang - Nim:0702191113
